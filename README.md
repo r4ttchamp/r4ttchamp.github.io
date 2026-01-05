@@ -1,8 +1,5 @@
-# r4ttchamp.github.io
-
-Hello world X[]
-
-This is the start of my new epic swag blog page thing, stay tuned for more awesomeness ദ്ദി◝ ⩊ ◜.ᐟ
+<h1>Hello world X[]
+  <p>This is the start of my new epic swag blog page thing, stay tuned for more awesomeness ദ്ദി◝ ⩊ ◜.
 
 
 
@@ -24,3 +21,4 @@ This is the start of my new epic swag blog page thing, stay tuned for more aweso
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠘⠿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⠿⣿⠿⠃⠀⠀⠀⠀⠀⠀
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠛⠿⠟⠻⠿⠿⠿⡟⠉⠉⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
 💥╾━╤デ╦︻ඞා
+</p>
