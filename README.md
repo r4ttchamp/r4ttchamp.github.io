@@ -1,5 +1,14 @@
 # r4ttchamp.github.io
 
-Hello world?  
-I think this doesnt get published
-yo momma
+Hello world X[]
+
+This is the start of my new epic swag blog page thing, stay tuned for more awesomeness ദ്ദി◝ ⩊ ◜.ᐟ
+
+⡆⢰⠀⢀⣴⣦⡀⢠⣤⠀⣤⠀⣤⡆⠀⣴⣆⠀⠀⢠⣶⣶
+⡇⣸⠀⣾⣿⣿⣧⢸⣿⢰⣿⢀⣿⠀⢠⣿⣿⠀⠀⣿⣿⣿
+⣧⣿⡄⣿⣇⠸⠟⢸⣿⣸⣿⢸⣿⠀⢸⣿⣿⠀⢸⣿⠃⠘
+⡿⣿⠇⢿⣿⣷⡄⠈⣿⣿⣿⣿⣿⠀⢸⡇⣿⡇⢸⣿⠀⣀
+⣀⣏⠀⠘⢿⣿⣿⠀⣿⣿⡿⣿⡿⠀⣿⡇⢻⡇⢸⣿⠀⣿
+⣿⣿⡇⣶⡆⢹⣿⠀⣿⣿⠇⣿⡇⠀⣿⣿⣿⣿⢸⣿⡄⢠
+⢸⡇⠀⢿⣿⣿⣿⠀⢻⣿⠀⣿⡇⢰⣿⠟⢻⣿⠀⣿⣿⣿
+⠸⠇⠀⠘⠿⠿⠃⠀⠸⠿⠀⠿⠇⠸⠿⠀⠀⠿⠇⠘⠿⠟-ˋˏ✄┈┈┈┈( -_•)╦̵̵̿╤─
