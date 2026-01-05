@@ -1,3 +1,0 @@
-# r4ttchamp.github.io
-
-I think I can just write straight on the code line and dont actually have to write in html. there is much to learn about this world...
